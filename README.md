@@ -1,0 +1,1 @@
+ссылка на репо https://github.com/burn0v/slozhno-sosredotochitsya-ad
